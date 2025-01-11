@@ -21,6 +21,6 @@ Welcome to my Web3 Portfolio Repository! Here, you’ll learn about my journey i
       How to Reach Me  
 -Email:[morkaanna360@gmail.com]  
 -Twitter:[https://x.com/Anna91766255?t=xfC3JpXfFvmZd9b7IMXWkA&s=09]  
--Telegram:[@Shua_annie]
+-Telegram:[Shu_annie]
     Feel free to explore this repository and connect with me if our interests align!
 
